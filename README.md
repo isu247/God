@@ -1,6 +1,5 @@
-God
-community dick
-shit 
-piss
-cum
-dildos
+Community Dick
+Shit
+Piss
+Cum
+Dildos
