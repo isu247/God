@@ -1,4 +1,4 @@
-god
+God
 community dick
 shit 
 piss
